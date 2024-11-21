@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me? I'm at X, FB, Inst, etc.
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Fun? Remind me what it's that!!
+- ⚡ Fun fact: Fun? What it's not!!
 
 <!---
 uliza-0615/uliza-0615 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
