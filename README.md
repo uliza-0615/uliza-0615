@@ -2,7 +2,7 @@
 - 👀 I’m interested in music, language and literature.
 - 🌱 I’m currently learning how to create a REA.
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me? I'm a X, FB, Inst, etc.
+- 📫 How to reach me? I'm at X, FB, Inst, etc.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Fun? Remind me what it's that!!
 
